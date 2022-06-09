@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BigMafr4h
-- 👀 I’m student of Cybersercurity, i code in C and Python..
+- 👀 I’m student of Cybersecurity, i code in C and Python..
 - 🌱 I’m currently learning more of C and interested in assembly
 - 💞️ 
 - 📫 How to reach me ...
