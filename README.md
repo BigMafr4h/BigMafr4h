@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BigMafr4h
-- 👀 I’m code in C and Python
-- 🌱 I’m currently learning more of C and interested en assembly
+- 👀 I’m student of Cybersercurity, i code in C and Python..
+- 🌱 I’m currently learning more of C and interested in assembly
 - 💞️ 
 - 📫 How to reach me ...
 Insta @mafr4h
