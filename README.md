@@ -1,6 +1,6 @@
 Hey, I’m @BigMafr4h
-Ethical Hacker and 
-Pentester 
+$_Ethical Hacker/Pentester
+$_Dev
 
 Insta @mafr4h
 
