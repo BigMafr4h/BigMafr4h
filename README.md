@@ -4,7 +4,7 @@ $_Network technician and sometimes a hacker XD
 
 $_Dev
 
-Insta @mafr4h
+Instagram: @mafr4h
 
 <!---
 BigMafr4h/BigMafr4h is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
