@@ -1,6 +1,6 @@
-Hey, I’m @BigMafr4h
+Hey, I’m @MafraSh3llInterface
 
-$_Network Tech, Dev and sometimes a hacker XD
+$_Network/computer Technician, Dev and sometimes a hacker.
 
 Instagram: @mafr4h
 
